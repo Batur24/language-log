@@ -4,3 +4,6 @@
 
 + out of line
 > Some people from your own country will go way out of their line to help you.
+
++ stark naked
+> First time you go to the public bath. Always strange because you have to be stark naked.
