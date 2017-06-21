@@ -9,4 +9,7 @@
 > First time you go to the public bath. Always strange because you have to be stark naked.
 
 + ultra marathon
-Seven years later, I have kept off 60 lbs and regularly run ultra marathons.
+> Seven years later, I have kept off 60 lbs and regularly run ultra marathons.
+
++ tuck in
+> As I was tucking in our daughter later that night, she asked if she could “come home like mommy did” when she gets married one day. 
