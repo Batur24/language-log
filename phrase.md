@@ -13,3 +13,6 @@
 
 + tuck in
 > As I was tucking in our daughter later that night, she asked if she could “come home like mommy did” when she gets married one day. 
+
++ in an instant
+> In an instant I could see, I could feel, how the boundaries were drawn.
