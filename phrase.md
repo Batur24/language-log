@@ -16,3 +16,6 @@
 
 + in an instant
 > In an instant I could see, I could feel, how the boundaries were drawn.
+
++ hit it off
+> We had similar ideas about the show, and the two of us hit it off right away. 
