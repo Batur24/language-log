@@ -4,6 +4,7 @@
 This is my English learning log. Batman from Ukraine inspired me to write things in [language-learners forum](http://forum.language-learners.org/).
 
 ## 2017-07
++ [Breaking Bad](07-05-2017.md)
 + [Omelette](07-04-2017.md)
 + [Half Year](07-03-2017.md)
 
