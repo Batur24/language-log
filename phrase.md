@@ -22,3 +22,6 @@
  
  + alma mater
  > I came back to my alma mater last year, it hasn't changed a bit.
+
+ + colloquial expression
+ > I feel like I probably use too many colloquial expressions, so I hope my writing wasn't terribly confusing.
