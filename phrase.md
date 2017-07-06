@@ -31,3 +31,6 @@
 
  + set someone off
  > Somehow this set her off, she later said, "Bla bla bla"
+
+ + spousal unit
+ > My spousal unit has been accusing me of being "obsessive" about learning Spanish.
