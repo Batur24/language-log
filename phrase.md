@@ -34,3 +34,6 @@
 
  + spousal unit
  > My spousal unit has been accusing me of being "obsessive" about learning Spanish.
+  
+ + long haul
+ > I'm sure I'm into Spanish for the long haul.
