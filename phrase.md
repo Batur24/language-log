@@ -44,3 +44,6 @@ through due to the desire to learn.
 
 + speak ill of
 > My one saving grace was that my mom never spoke ill of him.
+
++ tough luck
+> Discretion is kind of our thing. That's what we do. Tough luck.
