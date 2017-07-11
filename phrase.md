@@ -37,3 +37,7 @@
   
  + long haul
  > I'm sure I'm into Spanish for the long haul.
+
++ plow through
+> when I think back about all I can really remember is frustration and plowing 
+through due to the desire to learn. 
