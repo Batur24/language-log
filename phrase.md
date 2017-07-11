@@ -41,3 +41,6 @@
 + plow through
 > when I think back about all I can really remember is frustration and plowing 
 through due to the desire to learn. 
+
++ speak ill of
+> My one saving grace was that my mom never spoke ill of him.
