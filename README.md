@@ -5,6 +5,7 @@ This is my English learning log. Batman from Ukraine inspired me to write things
 
 ## 2017-08
 + [Fang's Speech](08-01-2017.md)
++ [Yang's Interview](08-02-2017.md)
 
 ## 2017-07
 + [Intensive Listening](07-16-2017.md)
