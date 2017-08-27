@@ -7,6 +7,7 @@ This is my English learning log. Batman from Ukraine inspired me to write things
 + [CS162](08-03-2017.md)
 + [Yang's Interview](08-02-2017.md)
 + [Fang's Speech](08-01-2017.md)
++ [Freelance Work](08-28-2017.md)
 
 ## 2017-07
 + [Intensive Listening](07-16-2017.md)
