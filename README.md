@@ -4,6 +4,7 @@
 This is my English learning log. Batman from Ukraine inspired me to write things in [language-learners forum](http://forum.language-learners.org/).
 
 ## 2017-09
++ [New Friends](09-26-2017.md)
 + [Try](09-21-2017.md)
 
 ## 2017-08
