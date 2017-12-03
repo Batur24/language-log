@@ -1,48 +1,58 @@
 
-In any situation, small things we do can reflect who we are.
-But in extreme condition, when we are under pressure or face a challenge or in a difficult situaion
-the attitude we have, the decision we make, the way we go can define who we really are.
-This time, I want to talk about a book by French writer Camus and his philosophy.
-What I learn from Camus can help me see things differently, even in extreme condition
-
-Humble and Contemptuous
-
 Imagine you're in a plague disease city. The diease just began to spread, people are getting ill, 
-and a couple of people die off every day. The government sealed the city few days ago, 
-in afraid of the disease to spread.
+and a couple of people die off every day. The government blocked the city few days ago,
+they are afraid of the disease spread to other area.
 You're still healthy, but you cannot leave this city without authorities permission. You cannot connect
-to the outside world via phone or Internet, because it will cause panic in a whole country. Thousands of 
-people like you are waiting to get affected by the disease, and die desperately. 
-what would you do if you're in this situation?
+to the outside world through phone or Internet, because it will cause a panic in a whole country. 
+You can see people are crying in the street, and dying in a lane.
+Thousands of people like you are waiting to get affected by the disease, and die desperately. 
+what would you do if you were in this situation?
+
 + pray to God
 + try everything possible to escape this city
 + enjoy the rest life, do something you haven't done before, even something considered abnomal or illegal
-+ help fight against the disease even though very little chance to win
++ live your life as usual and help fight against the disease even though very little chance to win
 
-The book called <Plague> written by French philosopher Camus described such kind situation. People are getting
-panic at the begining, some people are using illegal ways to escape the city like we know in film Tinatic.
-Some people use this disease
+The book called <The Plague> written by French philosopher and writer Camus described such kind of situation. 
+People are getting panic at the begining, some people are using illegal ways to escape the city like we know in film Titatic. Some people use this disease
 to warn people that it's God's punishment for people don't follow the God. Some are afraid of the terrible
-symptoms and decide to commit suicide. However, some people begin to make a medical team to fight against the
-epidemic. 
+symptoms and decide to commit suicide. However, some people begin to team up a medical organization
+and fight against the desease. 
 
-A courageous and talented doctor Rieux lead this medical team, with his leadership and hard working, 
-many people joined the team, including a man, Galang. He's not very smart, but 
-very kind, and had a naive dream to think of some good sentences for his novelty, which is just
-severl sentences.
-He's a very normal guy, doing some repeated works, making his little contribution. 
-Finnally the plague disease was defeated. What pondered me most is the author said,
+In this new organization, a courageous and talented doctor Rieux 
+lead this medical organization, with his leadership and hard working, 
+many people joined the organization to fight against the desease together,
+including a man, Galang. He's not very smart, but very kind, 
+a normal and simple guy, doing some repeated works, making his little contribution
+to fight against the desease.
+
+Through several months hard working, under the leader of the doctor Rieux
+everyone in the organization helped clean
+the dead body, investigated and collected data of the dead. Where did these man go,
+what did they do before death?
+Galang, this simple man, helped organize the data, and told about his navie dream,
+which is to write a novel.
+Finnally the plague disease was defeated. 
+
+What pondered me the most is the author said,
 if this story really needs a hero, Instead of doctor Rieux, it's this simple man Galang.
 
 Let heroism comes back to its second position where it should be. What does that mean? 
-It's people ranks first. Humble, be a part of integer people.
-Another view made me think a lot is, don't think over highly of Good deeds, it's equivalent to praise evil indirectly.
-Almost all of the evil in the world is caused by ignorance, and we all are ignorant in a way.
+It's these integer and hard working people ranks first. 
+
+In any situation, small things we do can reflect who we are.
+But in extreme condition, when we are under pressure or face a challenge or in a 
+very difficult situaion
+the attitude we have, the decision we make, the way we go can define who we really are.
+
+In the end, if you asked me, what would I do if I were in that situation?
+To be honest, I don't know. But I hope I could overcome fear and
+have the courage to be a part of people fight against the desease no matter what. 
 
 
-If you asked me, what would I do if I were in that situation? To be honest, 
-I don't know. But I hope I could have the courage to join
-the medical team, fight against the desease no matter what. 
+
+
+
 
 Let me tell you another story.
 
